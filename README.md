@@ -23,9 +23,3 @@ Please feel free to:
 2. Recruit additional colleagues whose expertise could strengthen our initiative
 
 This is volunteer work that requires commitment, but the potential impact on our field is substantial.
-
-## Looking Ahead
-
-Derrick Peyton has offered that we host a discussion and round table at the Canadian Hydrographic Conference in Montreal next year where we can present our agreements and findings to the broader community. This will be an excellent opportunity to showcase the working group's accomplishments and gather additional input from the hydrographic community.
-
-I look forward to your active participation in this endeavor.
